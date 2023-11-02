@@ -7,6 +7,11 @@
 >
 > ![公众号二维码](https://chaidingoss.oss-cn-hangzhou.aliyuncs.com/qrcode.jpg)
 
+
+> **PC版免费刷题软件：**
+https://ruankaokao.com
+
+
 > **23年最新题库、全部免费、无广告刷题小程序，欢迎微信扫码练习！！！**
 >
 > ![软考达人](https://chaidingoss.oss-cn-hangzhou.aliyuncs.com/ruankao/share/%E8%BD%AF%E4%BB%B6%E8%AE%BE%E8%AE%A1%E5%B8%88-gitee.png?x-oss-process=image/resize,w_258,h_258,limit_0)
