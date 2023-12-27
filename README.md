@@ -9,7 +9,7 @@
 
 
 > **PC版免费刷题软件：**
-https://ruankaokao.com
+https://ruankaodaren.com
 
 
 > **23年最新题库、全部免费、无广告刷题小程序，欢迎微信扫码练习！！！**
